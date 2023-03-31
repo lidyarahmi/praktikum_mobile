@@ -1,1 +1,1 @@
-# praktikum_mobile/Dice_Roller_APP
+# praktikum_mobile/Lidya Rahmi
